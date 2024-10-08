@@ -1,3 +1,4 @@
-I’m @Deazzzzzy
-pronounces as Dizzy
-Write code on Python: Scripts, Simple logical proggrams. Can write on JS and a little bit HTMl 
+I’m ПидораZZZZy
+pronounces as Пидор
+Write code on Листок, бумага, парта(я школьник тупой), двери, стены и везде ваще пишу тегаю
+ебите меня семеро
